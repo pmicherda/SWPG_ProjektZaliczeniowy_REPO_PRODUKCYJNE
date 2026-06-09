@@ -1,0 +1,2 @@
+# SWPG_ProjektZaliczeniwy_REPO_PRODUKCYJNE
+Projek_Zaliczeniowy_Systemy_wspomagania_pracy_zespoLowej_CWP_
